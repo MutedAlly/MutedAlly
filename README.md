@@ -1,0 +1,3 @@
+- Ohiyo! I’m @MutedAlly
+- I’m currently learning how to write, draw, and program.
+- Contact me at Nayukoat#3521
