@@ -1,3 +1,3 @@
-- Ohiyo! I’m @MutedAlly
+- Ohiyo! I’m @Spring_Arssion
 - I’m currently learning how to write, draw, and program.
-- Contact me at Nayukoat#3521
+- Contact me at Nayukoat on discord 
